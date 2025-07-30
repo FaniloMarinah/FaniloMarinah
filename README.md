@@ -33,7 +33,7 @@ I haven’t had the opportunity to put my skills into practice yet, but I’m ea
 
 ### 🌐 Find Me Online
 
-- GitHub: [FaniloMarinah](insert-your-github-link-here)
+- GitHub: [FaniloMarinah](https://github.com/FaniloMarinah)
 
 ---
 
